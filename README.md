@@ -1,1 +1,1 @@
-# Pair_Programming_sprint2_Ver-nica-Fiona
+# Pair_Programming_Sprint2_Veronica-Fiona
